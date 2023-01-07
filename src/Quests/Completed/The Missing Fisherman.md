@@ -1,0 +1,8 @@
+# The Missing Fisherman
+## Status: Completed
+
+Some fishers had gone missing at the lake [Lac Dinneshere](../../Places/Ten%20Towns/Easthaven/Lac%20Dinneshere.md) and we were sent out to find them by [Imdra Arlaggath](../../People/Easthaven/Imdra%20Arlaggath.md). We went to the pier and talked to the head [Captain Ahab](../../People/Easthaven/Captain%20Ahab.md) to assist us with a boat to find them.
+
+Described the people that went missing: they worked for him and used the boat called the Unsinkable IV. [Missing Fisherman](../../People/Easthaven/The%204%20Fisherman.md) were known as Sasha, Derek, Jessica, Jim.
+
+We went out to the lake with the captain, eventually we found the Unsinkabale IV with no crew near [The Caverns Of Lac Dinneshere](../../Places/Ten%20Towns/Easthaven/The%20Caverns%20Of%20Lac%20Dinneshere.md). We then went into the caverns searching them. In there we found drawings(see specific article). We found a wolf which we defeated. Also found a skeleton entombed in ice. It broke out of the ice so we also defeated it. Finally we encountered a witch called [Maud Chiselbone(dead)](Maud%20Chiselbone(dead).md) and her wisp. We beat the witch into submission, she agreed to offer the location of the treasure if we let her live. We denied this and defeated her. She killed the fisherman and put them in a stew. We returned to [Easthaven](../../Places/Ten%20Towns/Easthaven/Easthaven.md) and turned in the quest.
